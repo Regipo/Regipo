@@ -2,7 +2,7 @@
 - 👀 I’m interested in Ngoding 
 - 🌱 I’m currently learning Pascal,CPP,Phyton
 - 💞️ I’m looking to collaborate with Cewe Anime Cantik
-- 📫 How to reach me Instagram
+- 📫 How to reach me Instagram @Regipou
 - 😎 My dreams are going to Japan, Remote jobs 
 - 😄 Pronouns: Tebaj
 - ⚡ Fun fact: Raja Iblis
